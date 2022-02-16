@@ -11,10 +11,10 @@ nothing technical, just a collection of my paintings. Enjoy the art : )
 3. Self portrait
     In my favourite blue jacket, below yellow tinted window, working on the first painting.
 
-4. silver river
+4. Silver River
     The Chinese name for the Milky Way translates to the silver river. A beautiful object in creation.
     
-5. amalgamate
+5. Amalgamate
     Strange beings that lurk beyond the halls of sanity.
     
 6. Cheeky Lighting on Adrian
@@ -22,3 +22,6 @@ nothing technical, just a collection of my paintings. Enjoy the art : )
 
 7. Singer
     Singer in my high school jazz band, a true treasure to music.
+
+8. Rose
+    A high school friend.
