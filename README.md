@@ -23,5 +23,5 @@ nothing technical, just a collection of my paintings. Enjoy the art : )
 7. Singer, 2020:
     Singer in my high school jazz band, a true treasure to music.
 
-8. Rose
+8. Rose, 2022
     A high school friend.
